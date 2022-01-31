@@ -4,10 +4,10 @@
 Дивні створіння в них з мозгів стирчать коріння
 Олені, олені не бриті і не голені, – олені...
 
-Я вчора розмовляв з директором Чукотки,
-Він просив , а я налив йому в стаканчик водки.
-Ми дивились в мікроскоп строєніє генів
-Я дивився на дівчат, а думав про оленів.
+I talked to the director of Chukotka yesterday,
+He asked, and I poured him a glass of vodka.
+We looked at the structure of genes under a microscope
+I looked at the girls and thought about the deer.
 
 Коли в руках тримаю цей альбом,
 Нам було абсолютно все одно
