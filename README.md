@@ -16,3 +16,8 @@ I looked at the girls and thought about the deer.
 Він всіх нас методично поділив,
 Когось він опустив, когось підняв,
 А є на кого взагалі забив.
+
+Look, if you had one shot, or one opportunity
+To seize everything you ever wanted-One moment
+Would you capture it or just let it slip?
+
