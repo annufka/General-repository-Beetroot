@@ -5,9 +5,9 @@
 Олені, олені не бриті і не голені, – олені...
 
 I talked to the director of Chukotka yesterday,
-He asked, and I poured him a glass of vodka.
-We looked at the structure of genes under a microscope
-I looked at the girls and thought about the deer.
+Запитав він, and I poured him a glass of vodka.
+We looked at the structure of genes under a мікроскоп
+I looked at the дівчата і думали про оленя.
 
 Коли в руках тримаю цей альбом,
 Нам було абсолютно все одно
