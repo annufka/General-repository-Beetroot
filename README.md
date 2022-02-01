@@ -48,11 +48,6 @@ So, put your loving hand out, baby
 I'm beggin', beggin' you
 So, put your loving hand out, darling
 
-I'm умоляю', умоляю' you
-So, put your loving hand out, baby
-I'm beggin', beggin' you
-So, put your loving hand out, darling
-
 Git — потужна і складна розподільна система контролю версій.
 Розуміння усіх можливостей git відчиняє для розробника нові горизонти.
 Найкращий спосіб навчитися володінню Git — спробувати його власноруч.
