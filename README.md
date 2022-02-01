@@ -3,6 +3,14 @@
 Олені, олені не бриті і не голені
 Дивні створіння в них з мозгів стирчать коріння
 Олені, олені не бриті і не голені, – олені...
+I'm a man, I'ma make a new plan
+Time for me to just stand up, and travel new land
+Time to really just take matters into my own hands
+Once I'm over these tracks man I'ma never look back
+(8 Mile Road) And I'm gone, I know right where I'm goin'
+Sorry momma I'm grown, I must travel alone
+And go follow the footsteps I'm makin my own
+Only way that I know how to escape from this 8 Mile Road
 
 I talked to the director of Chukotka yesterday,
 Запитав він, and I poured him a glass of vodka.
