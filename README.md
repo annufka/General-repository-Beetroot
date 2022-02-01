@@ -56,11 +56,11 @@ Git — потужна і складна розподільна system control v
 Але різні поети всі слова вже сказали.
 І я не хотів повторити когось із них.
 Я біля свої мами буду завжди маленьким
-Du
-Du hast
-Du hast mich
-Du hast mich gefragt
-Du hast mich gefragt
+Duu
+Duu hast
+Duu hast mich
+Duu hast mich gefragt
+Duu hast mich gefragt
 Und ich hab nichts gesagt
 Только её глаза научили меня влюбляться
 И звёзды с неба шепчут, что мечты начнут сбываться.
