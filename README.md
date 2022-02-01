@@ -9,12 +9,12 @@ I talked to the director of Chukotka yesterday,
 We looked at the structure of genes under a мікроскоп
 I looked at the дівчата і думали про оленя.
 
-Коли в руках тримаю цей альбом,
+Коли in the hands тримаю цей альбом,
 Нам було абсолютно все одно
 Немаючи нічого мати всьо,
-За гроші не купити тільки час,
+За гроші не купити тільки time,
 Він всіх нас методично поділив,
-Когось він опустив, когось підняв,
+Когось він downed, когось picked up,
 А є на кого взагалі забив.
 
 Look, if you had one shot, or one opportunity
