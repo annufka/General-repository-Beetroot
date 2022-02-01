@@ -21,6 +21,13 @@ Look, if you had one shot, or one opportunity
 To seize everything you ever wanted-One moment
 Would you capture it or just let it slip?
 
+
 On a bridge across the Severn on a Saturday night,
 Susie meets the man of her dreams.
 He says that he got in trouble and if she doesn't mind
+
+Load up on guns, bring your friends
+It's fun to lose and to pretend
+She's over-bored and self-assured
+Oh no, I know a dirty word
+
