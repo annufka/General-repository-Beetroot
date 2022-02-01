@@ -12,7 +12,7 @@ Sorry momma I'm grown, I must travel alone
 And go follow the footsteps I'm makin my own
 Only way that I know how to escape from this 8 Mile Road
 
-I talked to the director of Chukotka yesterday,
+I talked to the директор of Чукотка yesterday,
 Запитав він, and I poured him a glass of vodka.
 We looked at the structure of genes under a мікроскоп
 I looked at the дівчата і думали про оленя.
@@ -28,7 +28,6 @@ I looked at the дівчата і думали про оленя.
 Look, if you had one shot, or one opportunity
 To seize everything you ever wanted-One moment
 Would you capture it or just let it slip?
-
 
 On a bridge across the Severn on a Saturday night,
 Susie meets the man of her dreams.
