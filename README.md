@@ -1,7 +1,7 @@
 # General-repository-Beetroot
 
 Олені, олені не бриті і не голені
-Дивні створіння в них з мозгів стирчать коріння
+Strange creatures  в них з мозгів стирчать коріння
 Олені, олені не бриті і не голені, – олені...
 I'm a man, I'ma make a new plan
 Time for me to just stand up, and travel new land
@@ -48,7 +48,7 @@ So, put your loving hand out, baby
 I'm beggin', beggin' you
 So, put your loving hand out, darling
 
-Git — потужна і складна розподільна система контролю версій.
+Git — потужна і складна розподільна system control version.
 Розуміння усіх можливостей git відчиняє для розробника нові горизонти.
 Найкращий спосіб навчитися володінню Git — спробувати його власноруч.
 
