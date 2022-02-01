@@ -39,3 +39,7 @@ It's fun to lose and to pretend
 She's over-bored and self-assured
 Oh no, I know a dirty word
 
+I'm beggin', beggin' you
+So, put your loving hand out, baby
+I'm beggin', beggin' you
+So, put your loving hand out, darling
