@@ -12,7 +12,7 @@ Sorry momma I'm grown, I must travel alone
 And go follow the footsteps I'm makin my own
 Only way that I know how to escape from this 8 Mile Road
 
-I talked to the director of Chukotka yesterday,
+I talked to the директор of Чукотка yesterday,
 Запитав він, and I poured him a glass of vodka.
 We looked at the structure of genes under a мікроскоп
 I looked at the дівчата і думали про оленя.
@@ -29,15 +29,29 @@ Look, if you had one shot, or one opportunity
 To seize everything you ever wanted-One moment
 Would you capture it or just let it slip?
 
+On a bridge across the Severn on a Saturday night,
+Susie meets the man of her dreams.
 
 On a bridge across the Severn on a суботня ніч,
 Susie meets the man of her мрії.
+
 He says that he got in trouble and if she doesn't mind
 
 Load up on guns, bring your friends
 It's fun to lose and to pretend
 She's over-bored and self-assured
 Oh no, I know a dirty word
+
+
+I'm beggin', beggin' you
+So, put your loving hand out, baby
+I'm beggin', beggin' you
+So, put your loving hand out, darling
+
+I'm beggin', beggin' you
+So, put your loving hand out, baby
+I'm beggin', beggin' you
+So, put your loving hand out, darling
 
 Git — потужна і складна розподільна система контролю версій. 
 Розуміння усіх можливостей git відчиняє для розробника нові горизонти. 
@@ -49,3 +63,4 @@ Git — потужна і складна розподільна система �
 Я біля свої мами буду завжди маленьким
 І, як тільки покличе, прибіжу скоренько,
 Тому я їй і написав ці слова як міг.
+
