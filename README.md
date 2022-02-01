@@ -1,7 +1,7 @@
 # General-repository-Beetroot
 
 Олені, олені не бриті і не голені
-Дивні створіння в них з мозгів стирчать коріння
+Strange creatures  в них з мозгів стирчать коріння
 Олені, олені не бриті і не голені, – олені...
 I'm a man, I'ma make a new plan
 Time for me to just stand up, and travel new land
