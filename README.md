@@ -25,3 +25,7 @@ Load up on guns, bring your friends
 It's fun to lose and to pretend
 She's over-bored and self-assured
 Oh no, I know a dirty word
+
+Git — потужна і складна розподільна система контролю версій. 
+Розуміння усіх можливостей git відчиняє для розробника нові горизонти. 
+Найкращий спосіб навчитися володінню Git — спробувати його власноруч.
