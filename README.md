@@ -62,7 +62,7 @@ Duu hast mich
 Duu hast mich gefragt
 Duu hast mich gefragt
 Und ich hab nichts gesagt
-Только её глаза научили меня влюбляться
+Только её глаза научили меня влюбляться!
 И звёзды с неба шепчут, что мечты начнут сбываться.
 
 тест, тест, тест, тест, тест...
