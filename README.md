@@ -20,7 +20,7 @@ I looked at the дівчата і думали про оленя.
 Коли in the hands тримаю цей альбом,
 Нам було абсолютно все одно
 Немаючи нічого мати всьо,
-За гроші не купити тільки time,
+За гроші не купить только time,
 Він всіх нас методично поділив,
 Когось він downed, когось picked up,
 А є на кого взагалі забив.
@@ -31,6 +31,10 @@ Would you capture it or just let it slip?
 
 On a bridge across the Severn on a Saturday night,
 Susie meets the man of her dreams.
+
+On a bridge across the Severn on a суботня ніч,
+Susie meets the man of her мрії.
+
 He says that he got in trouble and if she doesn't mind
 
 Load up on guns, bring your friends
@@ -38,6 +42,7 @@ It's fun to lose and to pretend
 She's over-bored and self-assured
 Oh no, I know a dirty word
 
+
 I'm beggin', beggin' you
 So, put your loving hand out, baby
 I'm beggin', beggin' you
@@ -47,3 +52,15 @@ I'm beggin', beggin' you
 So, put your loving hand out, baby
 I'm beggin', beggin' you
 So, put your loving hand out, darling
+
+Git — потужна і складна розподільна система контролю версій. 
+Розуміння усіх можливостей git відчиняє для розробника нові горизонти. 
+Найкращий спосіб навчитися володінню Git — спробувати його власноруч.
+
+Я завжди мріяв написати пісню про маму,
+Але різні поети всі слова вже сказали.
+І я не хотів повторити когось із них.
+Я біля свої мами буду завжди маленьким
+І, як тільки покличе, прибіжу скоренько,
+Тому я їй і написав ці слова як міг.
+
