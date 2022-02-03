@@ -65,6 +65,7 @@ Duu
 Duu hast
 It's my life!
 oh... yeah...
+tik tik
 Duu hast mich gefragt
 Und ich hab nichts gesagt
 Только её глаза научили меня влюбляться!
