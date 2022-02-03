@@ -63,8 +63,8 @@ Git — потужна і складна розподільна system control v
 Я біля свої мами буду завжди маленьким
 Duu
 Duu hast
-Duu hast mich
-Duu hast mich gefragt
+It's my life!
+oh... yeah...
 Duu hast mich gefragt
 Und ich hab nichts gesagt
 Только её глаза научили меня влюбляться!
