@@ -89,3 +89,13 @@ ups2
 
 Bassman, would you come and save the night?
 Bassman can feel the vibe
+
+Heartache, heartache
+Heart was gold
+Oh, she hurt you
+It's stone cold.
+Lonely, lonely
+Your wasted years
+You're a winner with bad souvernirs.
+You're a hero, you're a man
+You're a winner, take my hand.
