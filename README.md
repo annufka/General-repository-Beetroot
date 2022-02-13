@@ -89,3 +89,13 @@ ups2
 
 Bassman, would you come and save the night?
 Bassman can feel the vibe
+
+'Cause you are young
+You will always be so strong
+Hold on tight to your dreams, hold on.
+You are right, don't give up -( baby, baby, babe)
+'Cause you are young
+You are right then you are wrong
+You're a hero
+next day you're down
+So hold on to your dreams.
