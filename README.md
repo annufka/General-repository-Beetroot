@@ -29,8 +29,15 @@ Look, if you had one shot, or one opportunity
 To seize everything you ever wanted-One moment
 Would you capture it or just let it slip?
 
-On a bridge across the Severn on a Saturday night,
-Susie meets the man of her dreams.
+Heartache, heartache
+Heart was gold
+Oh, she hurt you
+It's stone cold.
+Lonely, lonely
+Your wasted years
+You're a winner with bad souvernirs.
+You're a hero, you're a man
+You're a winner, take my hand.
 
 On a bridge across the Severn on a суботня ніч,
 Susie meets the man of her мрії.
